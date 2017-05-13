@@ -1,1 +1,1 @@
-# yudihermawans.github.io has glos
+# yudihermawans.github.io has glow
