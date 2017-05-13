@@ -1,1 +1,1 @@
-# yudihermawans.github.io
+# yudihermawans.github.io has glos
